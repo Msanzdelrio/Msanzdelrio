@@ -49,7 +49,7 @@ Yeah... Still working on these. Stay tunned!
 
 </br>
 
-- [Microsoft](https://www.microsoft.com/) as a Cloud and DevOps Consultant. May 2020 - ???.
+- [Microsoft](https://www.microsoft.com/) as a Cloud and DevOps Consultant. Sept 2018 - now.
 
 </br>
 
